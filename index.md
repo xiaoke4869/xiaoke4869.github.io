@@ -1,8 +1,6 @@
-# Welcome
-
-## mico.im for sale. 此域名出售
-
-- 请联系我
+# mico.im
+## Please feel free to contact me.
 
 ### Name: LiCu
+### Wechat: xiaoke4869
 ### E-mail: xiaoke.g@qq.com
